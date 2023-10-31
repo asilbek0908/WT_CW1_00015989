@@ -1,0 +1,1 @@
+This website URL (wt-cw1-00015989.netlify.app) was created for Brandstore, a local Uzbek store specializing in products such as headphones, laptops, earphones, speakers, and more. Through this website, Brandstore can effectively promote and advertise the products they offer.
